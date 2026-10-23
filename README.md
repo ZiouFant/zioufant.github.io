@@ -1,1 +1,1 @@
-# zioufant.github.io
+Politiques de confidentialité des applications.
